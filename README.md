@@ -17,3 +17,5 @@ Students studying graphic arts, psychology, computer science or engineering will
 
 ## Congratulations, 2022 VR Challenge Winners!
 We hope you enjoyed the experience collaborating with your team and creating virtual reality solutions that address challenges in the real world. We can’t thank you enough for the time and commitment you gave to exploring new ideas with this state-of-the-art technology that will shape the future.
+
+https://energyinstitute.smugmug.com/Events/2022/VR-Challenge-114-622/
